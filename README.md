@@ -16,6 +16,22 @@ Skills of Mr. Shin
 Time open:
 Everyday from 9am to 6pm (Except weekends)
 
+Plans and Prices (Budget,Mid-range,Luxury)
+Budget Travel:
+1 Week: MYR 6,800 - MYR 11,400
+2 Weeks: MYR 9,100 - MYR 15,900
+1 Month: MYR 13,600 - MYR 22,700
+
+Mid-Range Travel:
+1 Week: MYR 11,400 - MYR 18,200
+2 Weeks: MYR 18,200 - MYR 25,000
+1 Month: MYR 22,700 - MYR 36,400
+
+Luxury Travel:
+1 Week: MYR 22,700+
+2 Weeks: MYR 36,400+
+1 Month: MYR 45,500+
+
 Popular prefectures in Japan for tourism:
 1. Hokkaido: Known for its natural beauty and winter sports.
 2. Tohoku: Offers scenic coastlines, historical sites, and natural wonders. Popular prefectures include Aomori, Akita, Iwate, Miyagi, Yamagata, and Fukushima.
